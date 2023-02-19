@@ -24,4 +24,4 @@ Requirements to use (on Mac):
 
 - Enjoy!!
 
-Follow on Twitter: @_Teggyg_  and Linkedin: @Oghenetega Biokoro   for more projects
+Follow on Twitter: @'_Teggyg_'  and Linkedin: @Oghenetega Biokoro   for more projects
